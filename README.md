@@ -1,0 +1,2 @@
+# muchsin-resolusi
+Resolusi kedapanya
